@@ -1,0 +1,2 @@
+# Modul7_STRUCK-ARRAY
+2311102028_ZefanyaTarigan
